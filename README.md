@@ -1,0 +1,1 @@
+# Manipal-day-to-day-practice
